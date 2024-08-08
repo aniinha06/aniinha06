@@ -7,3 +7,9 @@ Meu nome é Ana Clara
 - Utilizo esse espaço para minha organização e compatilhamento dos meus projetos desenvolvidos
   
 ## Você entra em contato comigo 🌸
+
+toigo.ana@escola.pr.gov.br
+
+anaclarax.santos
+
+![](https://tenor.com/pt-BR/view/hmm-cute-baby-gif-13798159)
