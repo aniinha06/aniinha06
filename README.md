@@ -12,4 +12,4 @@ toigo.ana@escola.pr.gov.br
 
 anaclarax.santos
 
-![](https://tenor.com/pt-BR/view/hmm-cute-baby-gif-13798159)
+(https://tenor.com/pt-BR/view/hmm-cute-baby-gif-13798159)
