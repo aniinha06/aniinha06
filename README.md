@@ -12,4 +12,5 @@ toigo.ana@escola.pr.gov.br
 
 anaclarax.santos
 
-(https://tenor.com/pt-BR/view/hmm-cute-baby-gif-13798159)
+
+<img src="https://media1.tenor.com/m/opEBWw0uddoAAAAC/umm.gif" alt="a cartoon character with a headband that says g on it"/>![image](https://github.com/user-attachments/assets/db629e49-9a57-477f-a4b4-9dcf8207bd56)
